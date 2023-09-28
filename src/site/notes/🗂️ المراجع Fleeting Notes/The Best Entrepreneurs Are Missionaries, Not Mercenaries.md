@@ -1,0 +1,27 @@
+---
+{"dg-publish":true,"permalink":"/almraje-fleeting-notes/the-best-entrepreneurs-are-missionaries-not-mercenaries/"}
+---
+
+
+
+The big news in the venture capital world is that John Doerr, legendary partner at Kleiner Perkins Caufield & Byers, is moving into a new role as the firm’s first chair, where he’ll be what he describes as a “player coach” to support the firm’s next generation of leaders. Kleiner Perkins is famous for making [some of the world’s best investments](http://www.kpcb.com/companies), including early stakes in Compaq, Genentech, Google, and Amazon. Doerr himself is famous for making clear the kinds of companies and leaders he likes to bet on and what he believes it takes to create long-lasting value in fast-moving times.
+
+The definition of an entrepreneur, Doerr likes to say, is someone who “does more than anyone thinks possible with less than anyone thinks possible.” And successful entrepreneurial ventures, whatever their industry or discipline, share a number of important traits: an A+ founder ocustomer experience, a reasonable approach to financing, a sense of urgency, and a devotion to building an authoritative, trusted brand.
+
+But the most important trait, Doerr argues, the critical distinction that separates high-impact entrepreneurs from those who don’t make a big difference, is less about what they do and more about what they believe and how they behave. The company builders he is most eager to work with, he says, are *missionaries*. The others, the ones he finds less compelling, are *mercenaries*. There is room for both, he concedes, but the difference between mercenaries and missionaries “is all the difference in the world.”
+
+**What’s the difference between mercenaries and missionaries?** As Doerr [explained](https://www.youtube.com/watch?v=LDWURusr02k) to an audience at Stanford Business School, mercenaries are “opportunistic.” They’re “all about the pitch and the deal” and are eager to sprint for short-term payoffs. Missionaries, on the other hand, are “strategic.” They’re all about “the big idea” and partnerships that last, and they understand that “this business of innovation is something that takes a long time” — it’s a marathon, not a sprint. Mercenaries have “a lust for making money,” while missionaries have “a lust for making meaning.” Mercenaries obsess about the competition and fret over “financial statements,” while missionaries obsess about customers and fret over “values statements.” Mercenaries display an attitude of entitlement and revel in the “aristocracy of the founders,” while missionaries exude an attitude of contribution and welcome good ideas wherever they originate. Mercenaries strive for success; missionaries aspire to “success and significance.”
+
+As I think about the great companies I’ve studied over the years, organizations that are winning big in all kinds of tough, highly competitive fields, Doerr’s distinction between missionaries and mercenaries helps me understand how these companies have been able to achieve extraordinary results even if many of them operate in pretty ordinary settings. You don’t have to be in a cutting-edge business to build a company based on John Doerr’s insights.
+
+DPR Construction, for example, is a deeply thoughtful, highly progressive force in an often troubled, slow-to-change industry. Its founders were explicit that the goal of the company is not just success but also significance. “We exist to build great things,” DPR declares in its [Core Ideology](http://www.dpr.com/company/ideology). (How many companies do you know that have a core ideology?) “We must be different from and more progressive than all other construction companies; we stand for something.”
+
+Or consider SOL Cleaning Service, one of northern Europe’s most admired entrepreneurial companies, which transformed a literally dirty business — cleaning offices, hospitals, apartment buildings, and the like — into something [smart, nimble, cheerful, even danceable](https://www.sol.fi/en/the-company/our-personnel/sunshine-for-your-day-videos.html). Founder Liisa Joronen and her colleagues built a fast-growing organization by rethinking the very nature of work in a field that few people dream of being part of, but which, like any business, can provide all sorts of opportunities for growth, creativity, and expansion if people are given the chance. That meant distributing decision-making power from headquarters to the field, allowing local teams and offices to set their own business targets and figure out how to meet them, and even putting frontline personnel in charge of budgeting, hiring, and negotiating with clients. She rejected an “aristocracy of the founders” [in favor of bottom-up ideas and contributions](http://www.fastcompany.com/27983/dirty-business-bright-ideas).
+
+So are you a missionary or a mercenary? One way to answer that big question is to consider three smaller questions that I believe bring John Doerr’s distinction to life:
+
+-   Do you have a definition of success that allows you to stand for something special and inspires others to stand with you?
+-   Do you have a “values proposition” that explains what you believe in addition to a “value proposition” that defines what you sell?
+-   Do you and your colleagues work as distinctively as you compete, and do those behaviors create something memorable and meaningful?
+
+As one of the world’s most accomplished venture capitalists adopts a new role at his company, it might be time to adopt some of his insights at your company.
