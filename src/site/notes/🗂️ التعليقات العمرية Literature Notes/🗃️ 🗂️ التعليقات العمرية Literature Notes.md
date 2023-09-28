@@ -1,12 +1,11 @@
 ---
-{"dg-publish":true,"permalink":"/altelyqat-alemryt-literature-notes/altelyqat-alemryt-literature-notes/","tags":["gardenEntry"]}
+{"dg-publish":true,"permalink":"/altelyqat-alemryt-literature-notes/altelyqat-alemryt-literature-notes/","tags":["MOC","gardenEntry","gardenEntry"]}
 ---
 
 
 - 🗂️ [[🗂️ التعليقات العمرية Literature Notes/علم النفس Psychology/🗃️ علم النفس Psychology\|🗃️ علم النفس Psychology]]
 - 🗂️ [[🗂️ التعليقات العمرية Literature Notes/طلب العلم Knowledge/🗃️ طلب العلم Knowledge\|🗃️ طلب العلم Knowledge]]
 - 🗂️ [[🗂️ التعليقات العمرية Literature Notes/شخصيات تاريخية Historic Figures/🗃️ شخصيات تاريخية Historic Figures\|🗃️ شخصيات تاريخية Historic Figures]]
-- 🗂️ [[🗂️ التعليقات العمرية Literature Notes/سيؤتينا الله من فضله/🗃️ سيؤتينا الله من فضله\|🗃️ سيؤتينا الله من فضله]]
 - 🗂️ [[🗂️ التعليقات العمرية Literature Notes/تلخيص كتب Book Summaries/🗃️ تلخيص كتب Book Summaries\|🗃️ تلخيص كتب Book Summaries]]
 - 🗂️ [[🗂️ التعليقات العمرية Literature Notes/تطوير الذات Self Development/🗃️ تطوير الذات Self Development\|🗃️ تطوير الذات Self Development]]
 - 🗂️ [[🗂️ التعليقات العمرية Literature Notes/المال Finance/🗃️ المال Finance\|🗃️ المال Finance]]
