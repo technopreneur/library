@@ -1,0 +1,90 @@
+---
+{"dg-publish":true,"permalink":"/almraje-fleeting-notes/anyone-can-journal-and-think-like-a-philosopher-here-s-how-you-tube/"}
+---
+
+
+**Anyone can Journal & Think like a Philosopher. Here's How - YouTube**
+
+- Journals are tools for the mind; they help collect, reflect, and strengthen thoughts.
+- There are numerous ways to journal, but a deep thinking philosophy journal is particularly valuable.
+- Parker (host) has a channel, Parker's Pencils, dedicated to deeper thinking and studying.
+- Distinctions among notebooks:
+  - **Diary**: Records daily experiences and feelings; more time-bound.
+  - **Journal**: A personal record of thoughts, ideas, and metacognition.
+  - **Commonplace Books**: Collections of quotes and reflections.
+  - **Compendiums**: Collections of concise detailed information on a particular subject, like passwords or wise sayings.
+  - **Book of Soliloquies**: Between a diary and journal; introspective, getting to know oneself.
+  - **Collection of Best Ideas**: A catch-all for significant ideas.
+  - **Pocket Notebook**: A true catch-all for any idea or task, used daily.
+- The philosophy journal is different from a commonplace book; it's more focused on personal deep thinking rather than collecting block quotes.
+- Three key features of thinking like a philosopher:
+  1. **Be Clear**: Clearly express ideas.
+  2. **Give Arguments**: Provide reasoning for views.
+  3. **Address Objections**: Consider counter-arguments and address them.
+- Example entry from the host's journal on July 20th revolves around the philosophy of artificial intelligence and whether its intelligence is "artificial" or "alien".
+- The host introduces a distinction between derivative and intrinsic intelligence using John Searle's work.
+- The concept of praise and blame in the context of AI's actions is explored, with a potential counter-argument raised about collective intelligence in organizations.
+- The host emphasizes that anyone can engage in deep philosophical thinking in their journal, regardless of their background in philosophy.
+- Call to action: Share intriguing ideas you'd like to explore in your philosophy journals.
+
+journals are tools for your mind you can use them to collect your thoughts all in one place you can look back on your thoughts in your journal in order to remember what you were thinking and when and you can use journals to reflect on your thoughts to sharpen them and strengthen them in order to help you become a better thinker those are just some of the benefits of keeping a journal and there are a lot of different ways you can go about keeping a journal but one of my favorite ways to journal is to keep a deep thinking philosophy
+
+Journal hey welcome to park notes I'm Parker set a case and this is a channel where I help you study and think more deeply in this video I'm going to lay out how you can think and journal like a philosopher in order to do that I'm going to distinguish journaling from keeping a diary and a commonplace book and other things that you can do with notebooks I'll then lay out three key features for thinking like a philosopher and then I'll apply those features to journaling to help you Journal like a
+
+philosopher so make sure you watch the whole video so you can get clear on how to keep a deep thinking philosophy Journal let's Jump Right In I keep journals I keep Diaries I keep compendiums and collections I keep books of soliloquies I keep commonplace books I keep pocket notebooks I keep all sorts of notebooks because they're tools for helping me get to know myself get to collect my ideas and think more clearly so before we get into the specifics about how to journal like a philosopher I want to make some distinctions between
+
+keeping a diary keeping a journal keeping a commonplace book just a regular old notebook a book of soliloquies all that good stuff so let's get clear what do I mean by journaling okay so first things first let's distinguish a diary from a journal these are my distinctions so if you don't like these you know you don't have to make them these are my stipulative definition I'm stipulating this is what I mean by a diary and a journal I know that this says journal on it but I use it as diary don't get confused a diary is just a
+
+book that is used to record your daily experiences and events as they happen I think this has to do more with your feelings here's what happened to me today and here's how I feel about it I think it's more time bound I think it's a daily price practice a journal on the other hand I think of as a personal record of your thoughts and ideas I don't think this necessarily has to be a daily type thing but here's what I'm thinking and here's what I think about what I'm thinking here are my ideas here
+
+are my thoughts and here are my thoughts about my thoughts you know metacognition type stuff so I used to do this every single day I have tons and tons of Diaries but then I became a philosopher and now all I do is think all day long no just kidding but I don't keep a daily diary any longer personal Diaries are are just that they're very personal so I don't want anyone else looking at these I'll probably burn these before I die my notebooks on the other hand I'm I'm glad for other people to look at these I
+
+want them to see my ideas my thoughts what do they think about my thoughts see me scratch out my ideas and argue against myself I I love that if I ever become somebody you can look at my journals but not my diaries now I also keep commonplace books commonplace books or collections of quotes and even thoughts about quotes these are from some of my favorite books these this is a theology commonplace book and these are all just quotes from my favorite books for me to reflect on them and make them part of who I am I also keep what I call
+
+compendiums these are just collection of things systematically gathered and presented as a whole compendium means weighed together so this is very similar to a commonplace book but it has to do with concise detailed information like an encyclopedia so I have a compendium for all of my passwords for all the different apps and emails and all that stuff I hide this in my home you'll never ever ever find this but I have a compendium for my passwords because I have way too many to remember and I keep a compendium for wisdom I
+
+collect wise statements and I put them in here for myself for me to become a wise man and to pass on to my children someday it's a collection of wise statements brought together into one book weighed together compendium and presented as a whole I keep a book of soliloquies to get to know myself better I just started this one this year so there's a lot of room for more notes but this is something between a diary and a journal it's my thoughts and emotions and feelings but it's getting to know myself it's a soliloquy a
+
+conversation with myself I keep a collection of my best ideas I just slap them in here and when I want to think about them more I will move them into another journal to think about them more deeply but this is just a catch-all it's where I'm catching all the ideas that I think are good slap them into here and then I move them to the appropriate notebooks as needed and I also keep a pocket notebook this is a true catch-all I bring it with me everywhere and when I have any kind of idea or to-do list or
+
+whatever it goes in here then I review it several times throughout the day and I add notes to wherever the note needs to go I make sure that I get it there but this is just my daily capture system I have a pocket notebook I'm going to make a video about this in the future so stay tuned all that to say I have a particular view of what a journal is it's for capturing your ideas it's for thinking about your own thoughts I used to keep a deep thinking philosophy commonplace book I would add lots and
+
+lots of quotes in here and then I would ruminate on them and I would turn them into blog posts and papers so you'll see lots of block quotes and then some of my thoughts underneath lots of page numbers lots of manic writing and scribbling all throughout here and then I would often structure them into arguments and ideas for blog posts philosophy papers theology papers and all that good stuff but recently I've separated my deep thinking philosophy journal from my philosophy commonplace book I still keep a philosophy commonplace
+
+book where I will put block quotes and I'll put my own thoughts on them and I'll structure It For My Philosophy papers but I found it necessary to keep a philosophy deep thinking Journal I will take this and only this to a coffee shop I will write down an idea at the top as a heading and then I will let it rip in a deep thinking session where I come up with arguments and counter arguments I try to get clear on Concepts and I try to think deeply about interesting ideas so I distinguish my deep thinking
+
+philosophy journal from my commonplace books in that I'm not adding huge block quotes in here this is where I'm doing my deep work my hard work of thinking through interesting ideas coming up with arguments anticipating counter examples and counter arguments dealing with those and thinking deeply if I come up with a good thought and here I will add it to my other notebooks and I'll find quotes that support my argument or counter examples from papers I've read or books I've read Journal articles but this is not a commonplace
+
+book this is a journal these are mostly my thoughts and it represents my own deep thinking so now that we've gone over some distinctions and how you can use notebooks and we've given a characterization of what it means to keep a journal let's briefly cover what it means to think like a philosopher now thinking like a philosopher is at once very easy and very very difficult it's easy because these three features I'm going to go over are relatively simple and easy to learn on the other hand this
+
+is a very difficult task because the better you get at using these three features the harder they get as you get better at doing philosophy philosophy comes more difficult I've been studying Philosophy for over 10 years and I'm still learning how to do it I started a podcast where I talk with the world's leading philosophers and theologians in order to continue learning what is philosophy and how does someone do it well one of the clearest and answers I found on what it means to do philosophy comes from philosopher Mike humor he's
+
+one of the best living philosophers doing it right now so I'll let him tell you in his own words basically what you should do in philosophy is number one be clear like in what you're saying so people know what the hell you're saying number two give Arguments for your views if they're not obvious like if you're taking controversial if you give a reason for it and number three address objections like what would the counter argument be from the other side and then talk about that and then try to set your
+
+response so like those are the three main things you have to do so that's a clip from my podcast Parker's pencies you can find a link to that you know somewhere up here but I told you the three features are pretty easy be clear give arguments anticipate counter arguments and objections and then address those if you do those three things you can start doing philosophy today but as you get better at these three it becomes more and more difficult you get better at coming up with counter arguments to your own arguments but it's
+
+all part of the process it's both exhilarating and horrifying and terrible but welcome to philosophy now let's apply these three features to journaling like a philosopher so now that we have a distinction between a journal and commonplace books and Diaries and notebooks in general and all that other stuff and we've covered the three key features of doing philosophy of how to think like a philosopher let's get into some practical application and I'll show you how I use these three features in my
+
+deep thinking philosophy Journal so keeping a deep thinking philosophy Journal is actually pretty easy all you need is a notebook go find a place that is conducive to deep thinking then come up with an idea that fascinates you that intrigues you that helps you generate other thoughts write that down and then be clear Define your terms what do I mean by X Y and Z give Arguments for your position why do I think this position is better than the Alternatives and then address counter arguments and counter examples what might someone else
+
+say about this what might someone who's a proponent of a rival explanation say in regards to my own arguments when where are my arguments weak where do they need Improvement where are they most susceptible to being attacked to being shown false anticipate objections and then address those objections it'll make your thinking clear it'll make your argument stronger so let me give an example here's a recent entry from July 20th I've been thinking a lot about the philosophy of artificial intelligence
+
+and even the word artificial intelligence is intriguing to me is the intelligence in AI is it really artificial or is it alien just because AI systems don't think the way that we think does that mean that they are fake intelligence or are they alien are they just different intelligent systems with different reasoning processes but which still come to the same end product intuitively I think that artificial intelligence is not real intelligence I think artificial is a great word for it I don't think real genuine reasoning is
+
+going on so I need to be clear about that I need to give arguments in favor of that I've come up with this distinction between derivative and intrinsic intelligence I got that from John Searles work in mystery of Consciousness and intentionality he makes a distinction between intrinsic and derivative intentionality and information and so I'm applying that to intelligence but I need to get clear on what exactly artificial intelligence systems are I think there are algorithms made of symbols which manipulate other
+
+symbols and I think any intelligence which is present in the algorithm is actually a representation of the intrinsic intelligence of the programmer who designed the algorithm it's like an extension of their intelligence and I think this is intuitive and can be brought out if we talk about praise and blame if an AI system does something good I think it's weird to praise that algorithm instead the praise ought to terminate on the programmer who made the algorithm wow you did a great job you're very intelligent you're very smart look
+
+what you were able to do through this algorithm but I also want to address counter arguments and counter examples what about an algorithm or AI system that was made not by one person but by a whole group of people where does the praise come terminate there are you saying there's a group agent if there's a group agent that deserves praise because of the product of an algorithm there's not one intrinsic agent who's responsible for that algorithm if that's the case then why do you think the
+
+algorithm itself can't be praiseworthy so that's a potential counter argument or counter example that I need to address in my paper now I'll probably give a deflationary view saying that there's no such thing as group agents but all the blame or praise that is due to a group ought to actually be distributed out amongst its members and we shouldn't think of the group as like its own individual agent or anything like that but this is a huge literature and there's going to be lots of counter
+
+examples and counter arguments and I'm gonna have to take positions and be clear and give arguments and then address other arguments and that's what philosophy is this also has implications for trees whether or not like trees represent intelligent systems or beehives and all that stuff so someone may say well trees are systems and they look like they do intelligent things and there may be intelligence inherent in a tree but no one designed a tree well maybe someone did design trees so now we're back to philosophy of religion
+
+does God exist did he design trees or did they come about by natural unguided processes so all this stuff is at play when I'm thinking about whether or not trees and algorithms are intelligent in my deep thinking philosophy sessions here in my deep thinking Journal now that's probably way too much detail for a lot of you but I hope that doesn't dissuade you from keeping your own deep thinking philosophy notebook you don't have to be a grad student in philosophy to do this all of you can do this and I
+
+encourage you all do this it will sharpen your mind and I actually think it'll make you a better person if you're anticipating objections from other people I think that'll make you better at empathy what would someone else think about this well how would they feel what would it be like to be that person looking at my arguments I'm not saying it's going to make you an amazing person but it has the potential to make you more empathetic and less arrogant about your own positions okay so to sum it all
+
+back up if you want to keep a deep thinking philosophy Journal if you want a journal like a philosopher you got to do at least three things be clear give arguments anticipate objections and counter arguments and address those counter arguments work those thoughts out in your deep thinking philosophy Journal now I want to hear from you guys what are some intriguing ideas that you are going to think about in your philosophy journals let me know in the comments leave me a like and make sure you subscribe to this channel so you
+
+don't miss out on any future videos on study habits and tips and journaling advice and all sorts of philosophy of AI nonsense I'll see you guys next time
